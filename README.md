@@ -1,1 +1,1 @@
-# NagaMahesh-TechM-Tasks-3-2-2025
+# TechM_Assignments
